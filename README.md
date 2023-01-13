@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Javlon
+- 👀 I’m interested in to trade in the stock market and drive sports cars
+- 🌱 I’m currently learning .Net framework
+- 💞️ I want to work as a good team and Company member
+- 📫 How to reach me telegram: @yaxshiliqov_Javlon
